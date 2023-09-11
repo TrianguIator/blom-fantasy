@@ -1,0 +1,2 @@
+- TIME Stories-mäßige Geschichte rund um Barna
+- Bemühung Vasagrins, Zeitreisen zu unternehmen, um den Ablauf des Krieges zu verändern (Angriff auf Piralm, um Artefakt zu entwenden, das Zeitreisen dafür ermöglicht)
